@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Baijnathsahni
-- 👀 I'm interested in Ayurvedic (😄)
+- 👀 I'm interested in Ayurvedic
 - 🌱 Pursuing B.tech
 - 💞️ I’m looking to collaborate on app and web project
 - 📫 linkedin linkedin.com/in/baijnath-sahni-3362532a7
